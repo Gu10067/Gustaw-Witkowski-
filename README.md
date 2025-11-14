@@ -1,0 +1,6 @@
+Donald Franciszek Tuskⓘ (ur. 22 kwietnia 1957 w Gdańsku) – polski polityk i historyk. W latach 2007–2014 i od 2023 prezes Rady Ministrów stojący na czele swojego pierwszego, drugiego i trzeciego gabinetu. Jest osobą najdłużej sprawującą urząd premiera w III RP[1].
+
+Uczestnik opozycji demokratycznej w PRL. Współzałożyciel partii politycznych: Kongresu Liberalno-Demokratycznego (1990), Platformy Obywatelskiej (2001) oraz Koalicji Obywatelskiej (2025). Przewodniczący KLD (w latach 1991–1994), PO (w latach 2003–2014 i 2021–2025) oraz KO (od 2025), pełniący obowiązki przewodniczącego PO w 2021. W latach 2014–2019 przewodniczący Rady Europejskiej, w latach 2019–2022 przewodniczący Europejskiej Partii Ludowej.
+
+Poseł na Sejm I, IV, V, VI, VII i X kadencji (1991–1993, 2001–2014, od 2023), w latach 1997–2001 senator i wicemarszałek Senatu IV kadencji, w latach 2001–2005 wicemarszałek Sejmu IV kadencji, w latach 2007–2009 przewodniczący Komitetu Integracji Europejskiej. Kandydat na urząd prezydenta RP w wyborach w 2005.
+
